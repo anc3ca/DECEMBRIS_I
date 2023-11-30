@@ -1,0 +1,1 @@
+Manuprāt, izpildīt uzdevumus man izdevās ļoti labi. Ar klades palīdzību sanāca saprast uzdevumu būtību un to gaitu. Protams, pie dažiem bija jāpiedomā bet es esmu priecīga par savu izpildīto darbu. 
